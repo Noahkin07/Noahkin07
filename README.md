@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Noahkin07
 - 👀 I’m interested in coding
-- 💞️ I’m looking to collaborate on website development
+- 💞️ I’m looking to collaborate on website development and coding stuff🤩
 - 📫 How to reach me leblancmarc109@gmail.com or phone number telegram and whatsapp +237 680337021
 
 <!---
